@@ -12,6 +12,6 @@ e 140 milhões de streams no Spotify. Catálogo com +150 milhões de streams acu
 ## Contato
 
 - *Booking / Shows:* (31) 99942-4574
-- *E-mail:* producaopejota@gmail.com
+- *E-mail:* producaopejotabala@gmail.com
 - *Instagram:* [@pejotabala](https://instagram.com/pejotabala)
 - *Spotify:* [Perfil do artista](https://open.spotify.com
